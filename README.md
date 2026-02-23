@@ -39,3 +39,6 @@ Por todo eso,para mi  One Piece es mas que un anime.
 Me inspira a seguir adelante, a no rendirme y a creer en mis sueños.  
 Me recuerda que, igual que los Mugiwaras, yo también puedo seguir mi propio camino y no dejar que los problemas que tengo , no me superen y que siempre habra esperanza  con esfuerzo que logre.
 
+LA CUESTION ES NO RENDIRSE Y SEGUIR ESFORZANDOSE TODO SE HACE CON ESFUERZO
+
+
