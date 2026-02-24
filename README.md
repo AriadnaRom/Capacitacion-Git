@@ -42,4 +42,4 @@ Me recuerda que, igual que los Mugiwaras, yo también puedo seguir mi propio cam
 LA CUESTION ES NO RENDIRSE Y SEGUIR ESFORZANDOSE TODO SE HACE CON ESFUERZO
 
 
-LINEA-CONFLICTO: versión A desde main
+LINEA-CONFLICTO: versión B desde conflicto
